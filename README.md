@@ -10,9 +10,9 @@
  .    ୨୧    ヾ(＾-＾)ノ         pls int first.. .   ᯓ    !
  . 
  . 
-彡     .  › tz ; gmt+1 ! algtime 🇩🇿 .  looking for friends ˙˚ʚ(´◡`)ɞ˚˙
+彡     .  › tz ; gmt+1 ! algtime 🇩🇿 . bmf:) . . . . . . . 
 . 
-. 
+![__Angel Beats, Otonashi, Hinata, Yui](https://github.com/user-attachments/assets/c2f2b977-79f6-4c85-a7d1-be4c94201237)
 .    𖥔   * .*
 .   fanndoms ; ANGEL BEATS! soul eater, hunter x hunter. 
 . 
